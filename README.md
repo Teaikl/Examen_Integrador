@@ -1,3 +1,3 @@
 # Examen_Integrador
-Mariela
+Mariela Capdevila
 Santiago Giudiche
