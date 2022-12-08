@@ -2,5 +2,5 @@
 Mariela Capdevila
 Santiago Giudiche
 Alejo Jorja
-Felipe Sepulveda
+Felipe Sepulveda S.
 Equipo 4 
